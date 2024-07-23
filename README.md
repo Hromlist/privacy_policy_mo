@@ -1,4 +1,4 @@
-<b>privacy policy</b>
+<b>Privacy policy</b>
 
 Hlist studio built the Мемуары Омеги app as a Free app. This SERVICE is provided by Hlist studio at no cost and is intended for use as is.
 
